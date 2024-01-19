@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @javion8088
-- 👀 I’m interested in ... leanng more about coding becouse i want to make my own social media app one day
+- 👀 I’m interested in ... learning more about coding becouse i want to make my own social media app one day
 - 🌱 I’m currently learning ... how to code 
 - 💞️ I’m looking to collaborate on ... nothing right now 
 - 📫 How to reach me ... Discord young_na#8285
